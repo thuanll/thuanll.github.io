@@ -1,2 +1,1 @@
-Hi! I'm Toan
-I am a programing and a Photographer!
+Welcome, I'm Thuan from HUST with love <3
